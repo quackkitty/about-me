@@ -1,13 +1,16 @@
  ────୨ৎ────
 
  
- ❤︎   hi!! my main names are catty or catherine. you could also call me vinny since it is my old name
+ ❤︎   hi!! my main names are catty or cat. you could also call me vinny if youd like
+ 
 
-
-  ❤︎   basic dni, if i am cosplaying please dont rp
+ ❤︎   pref she/her he or they is ehhh but you can still use it
+ 
+ 
+ ❤︎   basic dni, if i am cosplaying please dont try to rp
   
 
-  ❤︎   i am a system and i can also be passive aggresive or mean at times. pls dont take the things i say to heart !
+ ❤︎   my personality can vary but i am usally nice
   
 
-  ❤︎   c+h alwayessssssss i love interacting never be scared to int wirh me :3
+ ❤︎   c+h alwayessssssss i love interacting never be scared to int wirh me :3
