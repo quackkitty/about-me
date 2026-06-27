@@ -9,7 +9,7 @@ please only use she/her and feminine language on me no he/they/it or ill kill yo
 
 int please!! never be scared to talk to me im on a social game for a reason!
 
-id pref if nobody 18+ ints, but its not a set dni
+id pref if nobody 20+ ints, but its not a set dni
 
 im not interested in online dating please dont try to flirt with me 😭
 
